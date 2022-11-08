@@ -9,7 +9,7 @@ https://linktr.ee/hawaiian.food
 https://shop.oahu.space/hawaiian-food-tree
 
 ### Allele Life Linktree
-https://allele.life/hawaiian-food-group
+https://allele.life/hawaiian-food-tree
 
 ### Allele Life Facebook Group
 https://allele.life/hawaiian-food-group
